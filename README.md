@@ -25,7 +25,7 @@ For Dough
 
 For Garnishing
 2 tablespoon chopped coriander leaves
-----------------------------------------------------------------------------------------------
+
 Step 1 Pressure cook the chickpeas
 Step 2 Saute the onions
 Step 3 Add spices and cook the chole
